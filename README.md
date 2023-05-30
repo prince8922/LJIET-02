@@ -1,2 +1,0 @@
-# LJIET-02
-LJIET-02
